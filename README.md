@@ -1,0 +1,2 @@
+# coinmap.cash
+ 
